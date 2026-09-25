@@ -1,0 +1,1 @@
+me desculpe por tudo.. eu estive bem mal esses dias e não conseguia prestar atenção nas coisas tanto pelo edutec como também por problemas pessoais, por favor, não me pergunte o que aconteceu, mas entenda que não estou bem
